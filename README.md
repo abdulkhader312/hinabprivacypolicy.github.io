@@ -168,6 +168,6 @@ Name: Sheik Abdul Khader
 
 Email: hinab0323@gmail.com
 
-Mobile : +91 8838745148
+Mobile : 8838745148
 
 Address: 105, Jinnah Street , Erode, TamilNadu - 638001

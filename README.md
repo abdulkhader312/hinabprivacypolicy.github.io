@@ -162,7 +162,7 @@ HOW TO CONTACT US
 To request to access, review, update, or withdraw your consent for your personal information or to otherwise reach us, please submit a request by e-mailing us at hinab0323@gmail.com. You may contact us for information on Service Providers,HiNaB Entities with whom we may share your Data in compliance with this Privacy Notice and applicable law. We will respond to your request within 30 days.
 
 
-Please contact below details for the same:
+Please contact below person for the same:
 
 Name: Sheik Abdul Khader
 
